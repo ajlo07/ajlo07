@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning IOS
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
-- contact : 8128635333
+- contact : 8320903662
 - Mail : ajaykumarkhaniya663@gmail.com
 
 <!---
